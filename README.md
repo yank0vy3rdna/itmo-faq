@@ -21,7 +21,7 @@
 
 ## Учебные планы:
 
-- [Учебный план 2021](https://docs.google.com/spreadsheets/d/1NlrnPsPksHXzEHFnSHtUtbJg5AENXx6pVFBevHIg-4k/edit?usp=sharing)
+- [Учебный план 2022](https://docs.google.com/spreadsheets/d/1FIawpTuCeC3fqtvAC9bzEdj4TI48et3MQ4k0hZxdEu4/edit?usp=sharing)
 
 ## Вкусное🥳
 Нашу образовательну программу хотят модернизировать! Почитать о всём процессе можно в [телеграм-канале](https://t.me/reducks)
